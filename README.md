@@ -1,6 +1,20 @@
-ERM Ill set this up later ig hehehe.
+## My chronically online dni list ig
 
-plsss check out my rentry for info before you INT :3.
+
+- tcc freaks / radqueer / general bigots fuck off
+
+
+
+- TransID's / fakeclaimers can fuck off even more, my disorder is not yours to speak on / to take for your "identity" - An ADHD Transmasc 
+
+
+
+- I'm anti-harassment, but I'm against "darkshippers" (the gist: I'll leave you alone if you leave me alone, or I'll hide you if you're one).  I do speak publicly against it. I'm allowed to speak against it  publicly without it being "censorship"  
+
+
+
+----
+uhh more info on rentry (I'm going to remake it someday, trust me chat) 
 
 
 
