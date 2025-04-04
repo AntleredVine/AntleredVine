@@ -1,6 +1,7 @@
-## My chronically online info/dni list
+# My chronically online info/dni list
 
-### STUFF
+---
+ ### STUFF 
 ---
 
 - a Very cool chronically online Woke freak hehe 
@@ -14,7 +15,7 @@
 
 
 
-
+---
 ### the seriousness (important info/dni)
 ---
 
