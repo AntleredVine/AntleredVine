@@ -1,4 +1,4 @@
-## My chronically online dni list ig
+## My chronically online info/dni list
 
 
 - tcc freaks / radqueer / general bigots fuck off
