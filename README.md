@@ -30,7 +30,7 @@
 
 - TransID's/RCTA shit aside, i wont police you're identity, queerness isn't supposed to be fit in a neat box, you live your life freely, i might have questions if i don't understand but thats cause i want to! I love learning about this stuff! :)
 
-- 
+
 
 
 ----------
