@@ -38,6 +38,6 @@ also this page is a mega WIP so  yeah snif
 
 ######
 
-![](https://adriansblinkiecollection.neocities.org/h14.gif) ![](https://adriansblinkiecollection.neocities.org/k17.gif) ![](https://adriansblinkiecollection.neocities.org/l7.gif) 
+![](https://adriansblinkiecollection.neocities.org/h14.gif) ![](https://adriansblinkiecollection.neocities.org/k17.gif) ![](https://adriansblinkiecollection.neocities.org/d95.gif) ![](https://adriansblinkiecollection.neocities.org/l7.gif)  ![](https://adriansblinkiecollection.neocities.org/u10.gif)
 
 
