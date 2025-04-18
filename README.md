@@ -20,11 +20,17 @@ also this page is a mega WIP so  yeah snif
 - A very cool chronically online Woke freak 
 
 
+- Rarepair and multishipper enthusiast
+
+
 - Off Tab or afk mostly
 
 
-- Anti-Harassment but i dont support pro/darkshipping (basically i wont witch hunt  but i do speak very publicly against it)
- 
+- Anti-Harassment but i dont support pro/darkshipping (basically I won't witch hunt anyone over it  but i do speak very publicly against it)
+
+
+- I dgaf  about shipping stuff aside from what I said above, as long as it's like legal and consensual, I don't care, be free my dudes
+
 
 - I'm Homeschooled, so if it seems like I'm constantly online.... I am actually!
 
