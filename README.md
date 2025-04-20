@@ -26,7 +26,7 @@ also this page is a mega WIP so  yeah snif
 - Off Tab or afk mostly
 
 
-- Anti-Harassment but i dont support pro/darkshipping (basically I won't witch hunt anyone over it  but i do speak very publicly against it)
+- Anti-Harassment but i dont support pro/darkshipping (basically I will leave you alone mostly and i do speak very publicly against it)
 
 
 - Idgaf  about shipping stuff aside from what I said above, as long as it's like legal and consensual, I don't care, be free my dudes
