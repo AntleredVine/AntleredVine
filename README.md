@@ -15,7 +15,7 @@ also this page is a mega WIP so  yeah snif
 
 
  ### My chronically online info list 
-![](https://pixelsafari.neocities.org/dividers/heartbeat2.gif)
+![](https://64.media.tumblr.com/e871d9f224d2dc5f7a504c28eed3fa9f/85edfd53d6d2bedd-b4/s2048x3072/06b682064b34a55272f2fd5deb6b83ab50a5eee8.pnj)
 
 - A very cool chronically online Woke freak 
 
@@ -46,7 +46,7 @@ also this page is a mega WIP so  yeah snif
 
 ![](https://blinkiesyay.neocities.org/blinkies/pride/fuckterfs.gif)
 
-![](https://pixelsafari.neocities.org/dividers/heartbeat.gif)
+![](https://64.media.tumblr.com/e871d9f224d2dc5f7a504c28eed3fa9f/85edfd53d6d2bedd-b4/s2048x3072/06b682064b34a55272f2fd5deb6b83ab50a5eee8.pnj )
 
 
 ![](https://kotatsu.me/blinkies/adhdblinkie_byus.gif) ![](https://adriansblinkiecollection.neocities.org/g122.gif) ![](https://blinkiecollecti0n.neocities.org/images/genderfluidpride.gif)  ![](https://adriansblinkiecollection.neocities.org/d95.gif) 
