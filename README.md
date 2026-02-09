@@ -1,45 +1,43 @@
-![](https://64.media.tumblr.com/424c0e16011d6fad8417908473ff7d4a/68cd1c37a80af950-7c/s400x600/650862e8656902a06763317ff2d0a96ef3db4506.gifv)
 
 
-
+#### CHECK RENTRY ITS BETTER!!
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=l9ucw6st2d4ml6qkbyc9hrwfc&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
- CHECK RENTRY ITS BETTER THAN THIS PAGE!
+ 
 
 
 
 
- ### My chronically online info list 
+ ##### My chronically online info list 
 ![](https://64.media.tumblr.com/e871d9f224d2dc5f7a504c28eed3fa9f/85edfd53d6d2bedd-b4/s2048x3072/06b682064b34a55272f2fd5deb6b83ab50a5eee8.pnj)
 
-- A very cool chronically online Woke freak 
+- A very cool chronically online Woke freak - professional yapper
 
 
-- Rarepair and multishipper enthusiast
+- yumeshipper w Sloane Beaumont my goat 
 
 
-- Off Tab or afk mostly
+- Off tab usually 
 
 
-- Anti-Harassment but i dont support pro/darkshipping (basically I will leave you alone mostly and i do speak very publicly against it)
-
-
-- Idgaf  about shipping stuff aside from what I said above, as long as it's like legal and consensual, I don't care, be free my dudes
+- do NOT involve me in pointless fandom/lgbtq+ discourse, I'm too unc for that
 
 
 - I'm Homeschooled, so if it seems like I'm constantly online.... I am actually!
 
 
-- I tend to overexplain myself sometimes (as you can see with this :3)
- 
-
-- BRO CAN GROUNDED FANS INT WITH ME PLSSSS!1 GET OUT OF YOUR TINY CAVES NEOWWWWWWW!!!
+- I block freely 
 
 
-- OC X CANON / SELFSHIPPERS PLSSS INTTTT I LOVEE YOUUU (ESP FOR SCP OR STARDEW)
+
+
+
+
+
+
 
 
 ![](https://blinkiesyay.neocities.org/blinkies/pride/fuckterfs.gif)
