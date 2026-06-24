@@ -20,7 +20,7 @@
 - yumeshipper w Sloane Beaumont my goat 
 
 
-- Off tab usually 
+- Off tab usually, Whisper if you need/want to talk :D
 
 
 - do NOT involve me in pointless fandom/lgbtq+ discourse, I'm too unc for that
